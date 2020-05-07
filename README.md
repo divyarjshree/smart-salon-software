@@ -47,4 +47,4 @@ Contact Us: User can contact with beauty parlor.
 
 # For any Queries - 
 Feel free to DM
-email : aishuduth26@gmail.com
+email : divyarjshree20@gmail.com
